@@ -1,0 +1,3 @@
+- 👋 Hi, I’m SANI
+- 🌱 I’m currently working in Standard chartered GBS Bangalore  
+- 📫 To reach me on 7676879941 
